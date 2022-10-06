@@ -1,1 +1,1 @@
-# Laxit GH pro
+# Laxit pro
